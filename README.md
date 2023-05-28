@@ -4,7 +4,7 @@ Members:
 
 Pham Le Gia Huy
 
-Nguyen Ngoc Khanh Dzi
+Nguyen Thach Khanh Dzi
 
 Nguyen Trung Hieu
 
